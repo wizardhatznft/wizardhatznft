@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @wizardhatznft
+- 👀 I’m interested in all things Bitcoin, Crypto, Blockchain, and NFTs! 
+- 🌱 I’m currently learning more about automation. 
+- 💞️ I’m looking to collaborate on building a solid and trustworthy community.
+- 📫 How to reach me @wizardhatznft
